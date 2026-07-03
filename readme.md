@@ -1,4 +1,4 @@
-Are We Living in an Artificial Reality? A Thought Experiment on AI, Consciousness, and the Future of Humanity - by - Niketan Gosavi DarkHunter2205 Article
+Are We Living in an Artificial Reality? A Thought Experiment on AI, Consciousness, and the Future of Humanity - by - Niketan Gosavi DarkHunter2205 Article 
 
 Throughout history, humans have asked one fundamental question: What is reality? As artificial intelligence advances, a new version of this ancient question emerges:
 
